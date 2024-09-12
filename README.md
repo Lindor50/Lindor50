@@ -1,3 +1,4 @@
 ## Hi there 👋
-<img src="https://github.com/Lindor50/Lindor50/blob|nain/ginsk.png" alt
+<img src="![image](https://github.com/user-attachments/assets/c35e4e73-ecb6-4bfa-b71b-d9faafcf0751)
+" alt
 -->
